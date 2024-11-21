@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @MulinRoge
+- 👋 Hi, I’m MulinRoge
 - 👀 I’m interested in 
 - 🌱 I’m currently learning
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: like Markul
 
 <!---
 MulinRoge/MulinRoge is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
