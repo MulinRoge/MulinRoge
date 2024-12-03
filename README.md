@@ -2,8 +2,8 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning
 - 📫 How to reach me ...faefyhghygq
-- 😄 Pronouns: okdfjieogbimbnedkb
-- ⚡ Fun fact: like Markul))00e0sfijgfrl
+- 😄 Pronouns: okdfjieo
+- ⚡ Fun fact: like Markul))00e0sfij
 !--
 MulinRoge/MulinRoge is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look 
