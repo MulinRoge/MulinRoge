@@ -1,7 +1,7 @@
 - 👋 Hi, I’m MulinRoge...
 - 👀 I’m interested in 
 - 🌱 I’m currently learning
-- 📫 How to reach me .,kf,hjyumk
+- 📫 How to reach me .bhjgtfrfgvyuigbuh
 - 😄 Pronouns: okdfjieo
 - ⚡ Fun fact: like Markul))0
 !--gfbghnukytg
